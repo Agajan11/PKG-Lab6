@@ -1,0 +1,1 @@
+EXE файл этого кода я поставил в диск и там вы можете посмотреть EXE файл этого кода. Сперва заходим на ссылку и потом скачайте его (это и есть EXE). Вот ссылка[:](https://drive.google.com/drive/folders/1StSZyMFbklc9sl2DEwp8MOmZ4C8OTWt1?usp=drive_link)
